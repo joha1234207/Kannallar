@@ -1,0 +1,2 @@
+# Kannallar
+Ismoilov jahongr
